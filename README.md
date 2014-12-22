@@ -35,44 +35,60 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The anatomie of Ananias: or, Gods censure against sacriledge With a breife scholie vpon Psalm. 83. c
+
+1. ❧ TO THE MOST Rev. Father in God, GEORGE, by Diuine prouidence Archbiſhop of CANTERBVRIE; Primate and Metropolitan of all England: All ſauing graces. ⁂
+
+1. Ad Lectorem.
+
+1. Ad Authorem.
+ANte aras tutos prodit tua pagina furesProdit & ingenium, iudiciumque tuum.Illi crimen habent, multiQVàm facile & tutum eſt arras hinc fallere diſces,Non tamen hic artem ſed ſcelus eſſe puta.Hoc ſolumDVm loqueris quantum ſcelus eſt ſubducere ſacris,Quotque modis fieri praeda, quibuſque ſolet.ObſtupuROdere Mome time, Dijs eſt ſacer iſte libellus,Et Scriptor ſacer eſt, rodere Mome time,I. A.
+1. The method and diſpoſition.
+
 #####Body#####
 
-1. CHAP. I.
+1. Deo & Eccleſiae. D. D. THE ANATOMIE OF Ananias and Sapphiraes Sacriledge.
 
-1. CHAP. II.
+    _ CHAP. I.
 
-1. CHAP. III.
+    _ CHAP. II.
 
-1. CHAP. IV.
+    _ CHAP. III.
 
-1. CHAP. V.
+    _ CHAP. IV.
 
-1. CHAP. VI.
+    _ CHAP. V.
 
-1. CHAP. I.
+    _ CHAP. VI.
 
-1. CHAP. II.
+1. THE SECOND PART of this Treatiſe, which ſtands in Application: and is firſt Deſtructiue, in confutation of ſundry Sacrilegers.
 
-1. CHAP. III.
+    _ CHAP. I.
 
-1. CHAP. IIII.
+    _ CHAP. II.
 
-1. CHAP. V.
+    _ CHAP. III.
 
-1. CHAP. VI.
+    _ CHAP. IIII.
 
-1. CHAP. I.
+    _ CHAP. V.
 
-1. CHAP. II.
+    _ CHAP. VI.
 
-1. CHAP. III.
+1. The ſecond part of the Application, which is Inſtructiue.
 
-1. CHAP. IV.
+    _ CHAP. I.
 
-1. CHAP. V.
+    _ CHAP. II.
 
-1. CHAP. VI.
+    _ CHAP. III.
+
+    _ CHAP. IV.
+
+    _ CHAP. V.
+
+    _ CHAP. VI.
+
+1. Pſalm. 83. Breifly paraphraſed and ſcholied: wherein is declared the Vniuerſall Conſpiracies of Gods enemies, for the vtter ſubuerſion of the Church: with a propheticall imprecation or prediction of their fall.
 
 **Types of content**
 
